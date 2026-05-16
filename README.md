@@ -45,4 +45,12 @@
 
 <p>Allora, cosa stai aspettando? Accedi subito al generatore di risorse illimitate per Archero 2 e trasforma il tuo gameplay in un'esperienza davvero epica!</p>
 
-## 🫵🫵 [SCARICA I TRUCCHI ARCHERO 2](https://shr.pn/Anto025ita) 🫵🫵
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/Anto025ita">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div
